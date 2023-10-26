@@ -12,5 +12,4 @@ meu nome e Alehandro S. Gomes
 Alehandro.gomes@escola.pr.gov.br
 
 
-
 ![](https://media.tenor.com/_VkY3D7F2EgAAAAd/ghost-mw22022-ghost-mw2.gif)
